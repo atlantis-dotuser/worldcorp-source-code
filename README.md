@@ -5,5 +5,7 @@ Instead of gatekeeping my files, I'll share them. I still believe that 98% of ma
 Always remember, 
 stay retarded. 
 
+Do what ever you want with this code, claim ownership, sell it, brag, etc.
+
 With much love, 
 Atlantis#6162
